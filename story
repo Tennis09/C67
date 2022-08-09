@@ -1,0 +1,1 @@
+Once upon a time, there was a greedy wolf who was always on a lookout for food.
